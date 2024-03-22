@@ -34,5 +34,4 @@
     4. Find the right balance between artistic vision and commercial viablity.Also explore niche markets. 
     5. If a specific language consistently shows higher popularity, consider prioritizing co-productions or films in that language. For example english.
 
-    # Thank You
 
